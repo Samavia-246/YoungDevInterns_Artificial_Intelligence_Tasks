@@ -1,0 +1,1 @@
+# YoungDevInterns_Artificial_Intelligence_Tasks
